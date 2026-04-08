@@ -1,1 +1,1 @@
-![Image](https://github.com/user-attachments/assets/faf67fb4-64ea-47cd-9c56-7f34d5d5c1d2 p)
+![Image](https://github.com/user-attachments/assets/faf67fb4-64ea-47cd-9c56-7f34d5d5c1d2)
